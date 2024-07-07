@@ -1,1 +1,1 @@
-# Najot-ta-lim-uyga-vazifa
+# Najot-talim home work
